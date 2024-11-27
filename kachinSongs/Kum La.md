@@ -1,5 +1,7 @@
 ## KumLa
 
+### Tu Ring
+
 Grai tsang ai ngu yang hkum pawt...
 Ga si grai tsang mat ai tai na..
 Mara ngu na hkum sawn la ya..
