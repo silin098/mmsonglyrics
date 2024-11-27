@@ -1,5 +1,7 @@
 # Galoi Tim Tsaw Na
 
+## Unknown
+
 Shawoi na zawn sha nang hte hkum shaga mayu.
 Hpa majaw zim mat ai
 ngai hta grai hkam sha yak ai hpa mi rai yang rai
@@ -13,6 +15,7 @@ Hkying ten shagu rau rai nga mayu
 Nang hte tsang yang nmai ai
 Nye a salum hkrin mat na zawn nga
 Sum ru shigu
+
 myiprwi hkrat nga ai
 Nang hpe ngai grai tsaw ai lam
 Nye a asak hpe pyi jaw gwi ai
