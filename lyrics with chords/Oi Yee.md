@@ -1,24 +1,45 @@
 ## Oi Yee
 
-### Mike La Sam
+### 🎤+✍️ Mike La Sam
 
-Ngai Le name Hpe grai tsaw ra Ai
-Ngai le Nang hpe grai naw Dum Dik Ai
-Hkying Ten Shagu Hta Na A Lam Ni Hpe
-Myit Sumru Nga
+Intro F....Dm....Gm....C....F
 
-Ndai Prat Hta nang Langai Hpe Sha
-Tsawra nga na ngu ai Nye A Ga
-Prat Htum Du Hkra
-Ah Lahkawn Lata gying dun let
-Rau nga ga le i ya
+Ngai Le [F]nang Hpe grai tsaw ra Ai
 
-Ngai Le nang hpe Tsawra Ye Ngu Yang
-Nang Bai Htan Ai Gaw Oi Ye Nga Le
-Dai n-seng na yang ngai le
-Myit Pyaw Myit Dik Ai
-Tsawra Ye Nang bai san ai gaw
-Ngai Hpe I Tsaw da
-She Tsawra le
-Nye A prat hta Nang Hta Lai Na
-Num Sha Gadai N-nga sai
+[Dm]Ngai le Nang hpe grai naw Dum Dik Ai
+
+[Gm]Hkying Ten Shagu Hta Na A Lam Ni Hpe
+
+Myit Sumru [C]Nga
+
+Ndai [F]Prat Hta nang Langai Hpe Sha
+
+Tsawra [Dm]nga na ngu ai Nye A Ga
+
+Prat Htum Du [Gm]Hkra
+
+Ah Lahkawn Lata gying dun [C]let
+
+Rau nga ga le i [F]ya
+
+Ngai Le nang hpe [Bb]Tsawra Ye Ngu Yang
+
+Nang Bai Htan Ai [F]Gaw Oi Ye Nga [C]Le
+
+Dai n-seng na [Gm]yang [C]ngai le
+
+Myit Pyaw Myit Dik [F]Ai
+
+Tsawra [Bb]Ye Nang bai san ai gaw
+
+Ngai [F]Hpe I Tsaw [Dm]da
+
+She Tsawra [Gm]le
+
+Nye A prat hta Nang Hta [C]Lai Na
+
+Num Sha Gadai N-nga [F]sai
+
+Solo C.....Bb....F.....Dm....Gm....C....F
+
+F.....Bb.....F....Dm.....Gm.....C......F
