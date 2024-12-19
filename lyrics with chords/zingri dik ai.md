@@ -22,16 +22,41 @@ Nye [E]salum kapret ti [D#m]grai nan nga yak [G#m]la ai
 
 [C#m]Dai wa rai sai kun sumtsaw [F#]lam
 
-Ngai Hkam Sha Yak Ai Nye a sumtsaw lam
+Ngai Hkam [B]Sha Yak Ai Nye a [G#m]sumtsaw lam
 
-Galoi ten du hkra ngai hkam sha ra na
+[E]Galoi ten du hkra ngai hkam sha ra [F#]na
 
-Nang Tsun Ai ngai hpe malap kau sanu nga
+[B]Nang Tsun Ai ngai hpe malap [G#m]kau sanu nga
 
-Hpa atsam hte ngai malap lu na
+[E]Hpa atsam hte [F]ngai malap lu na
 
-Ning ma hkang ni hkrai hpring chyat nga sai
+[E]Ning ma hkang ni [G]hkrai hpring [C#m]chyat nga [G#m]sai
 
-Nye Salum Nye a prat hpe nang
+[C#m]Nye Salum [F#]Nye a prat hpe nang
 
-Zingri Dik Ai
+[B]Zingri Dik Ai
+
+solo [D#m]....[C#m]....[E]....[C#m]....[F#].....[D#m]
+[B].[C#m].[F#]..[C#m] [E]...[C#m]...[F#]
+
+[B]Grai Tsawra chye mat yang she ngai [D#m]hpe kau da
+
+Dai [G#m]i Nang sharin Ya Ai sumtsaw [D#m]lam
+
+Nye [E]salum kapret ti [D#m]grai nan nga yak [G#m]la ai
+
+[C#m]Dai wa rai sai kun sumtsaw [F#]lam
+
+Ngai Hkam [B]Sha Yak Ai Nye a [G#m]sumtsaw lam
+
+[E]Galoi ten du hkra ngai hkam sha ra [F#]na
+
+[B]Nang Tsun Ai ngai hpe malap [G#m]kau sanu nga
+
+[E]Hpa atsam hte [F]ngai malap lu na
+
+[E]Ning ma hkang ni [G]hkrai hpring [C#m]chyat nga [G#m]sai
+
+[C#m]Nye Salum [F#]Nye a prat hpe nang
+
+[B]Zingri Dik Ai
