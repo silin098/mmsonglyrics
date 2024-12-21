@@ -22,9 +22,9 @@ Nye [E]salum kapret ti [D#m]grai nan nga yak [G#m]la ai
 
 [C#m]Dai wa rai sai kun sumtsaw [F#]lam
 
-Ngai Hkam [B]Sha Yak Ai Nye a [G#m]sumtsaw lam
+Grai Hkam [B]Sha Yak Ai Nye a [G#m]sumtsaw lam
 
-[E]Galoi ten du hkra ngai hkam sha ra [F#]na
+[E]Galoi ten du hkra [C#m]ngai hkam sha ra [F#]na
 
 [B]Nang Tsun Ai ngai hpe malap [G#m]kau sanu nga
 
