@@ -26,6 +26,6 @@ Tsawm ai hkawn sek mungdan
 groupyin chyam hkra woi rit
 anhte yawng a sari hpring
 mungdan hkawm tsawm hpe
-tsaw myit hte ngai maga ga
+tsaw myit hte maga ga
 shagrau sharawt na
 chye ga ngu amyu jet ni
