@@ -5,7 +5,7 @@
 malap map lu na aloi sha sawn da tim
 tatut hta yak hkat ai gara hku di na
 
-Oh ngai ndum hkra Nye Myit Hpe shadip da tim
+Oh ngai n dum hkra Nye Myit Hpe shadip da tim
 nmai ai na na magang
 grau she hkam sha wa
 
@@ -24,3 +24,11 @@ nang ngai hpang lau lau bai wa
 lachyum n pru ai shaning nhtoi ni hta
 ngai chyu sha
 tawt lai na n mai byin nga
+
+shut hpyi lam yawng hpe
+n matsing da
+tsaw myit hte yawng ka-up da
+mara raw chyinghka an rau sha hpaw ga
+nang mung chye na
+ngai mung chye na
+n-hka sa ga
