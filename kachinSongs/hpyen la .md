@@ -6,6 +6,7 @@ Ngwi Pyaw Htum Ai Ah nau ni A
 Dai Daw Ga
 Makawp maga ka hpu nau ni e
 nang hte rau ta gin dun na
+
 majan wan hkut ah nau ni a kraw kata
 dip lu dip sha tsin yan kaw na
 lawt lu hkra nang ngai yawng a matu
