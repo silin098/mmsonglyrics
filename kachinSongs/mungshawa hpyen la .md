@@ -5,8 +5,8 @@
 mungshawa hpe zingri dip sha
 anhte hkam jan nlu sai
 salum hta n hkraw sai
-n shawp n kap hpyen
-lusuk hpe gasat na
+n shawp n kap
+hpyen lusuk hpe gasat na
 mungshawa ni rawt sai
 
 Ma yan nu ni nja rai tim
