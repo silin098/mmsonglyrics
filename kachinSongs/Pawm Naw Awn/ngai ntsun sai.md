@@ -15,7 +15,7 @@ nawku jawng de sa
 ngai hpe hkap hkalum shaga na
 nang langai sha
 makau grupyin ni a myit hta
-grai nhkrai ai shinggyim masha
+grai nhkru ai shinggyim masha
 
 ngai tai na sai num kasha nang hte ngai
 nmai byin ai lam ni hpe ngai dum ai
@@ -26,3 +26,7 @@ nang hpe mu yang mung nchye ai zawn
 sha ngai nga na
 ngai ntsun sai
 nang hpe tsawra ai lam
+
+Ntsawm La ai nye a prat ndai
+masha ni a tsum hpa lam ni hkrai
+hten za nga ai nye a myit ni
