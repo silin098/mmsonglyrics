@@ -1,6 +1,6 @@
 ## Mungshawa hpyen la
 
-### Ah Gyung
+### Ah Hkawng Gyung
 
 mungshawa hpe zingri dip sha
 anhte hkam jan nlu sai
@@ -12,8 +12,8 @@ mungshawa ni rawt sai
 Ma yan nu ni nja rai tim
 dinghku kawa mung rawt sai
 ramma hte shingdaw sai
-tengman ai majan poi hta
-labau ka na
+tengman ai
+majan poi hta labau ka na
 shawng lam de rawt sai
 
 mungshawa hpyenla
