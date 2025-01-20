@@ -46,9 +46,7 @@ Oh Baby Nang hpe tsaw ai yawng hta grau
 
 Tsaw Dik la Sai n-den ja ai tsaw myit hte
 
-Prat hta kalang sha tsaw ai
-
-Ya she Tsaw Ga Ai
+Prat hta kalang sha tsaw ai Ya she Tsaw Ga Ai
 
 Nang hta lai na n-nga
 
