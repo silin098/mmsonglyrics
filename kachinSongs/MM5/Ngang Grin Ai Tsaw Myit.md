@@ -22,6 +22,6 @@ ngai akyu hpyi nga
 
 Galai shai lam law ai mungkan hta
 ngang grain ai tsaw myit hpe
-ngai ra nga nga tam nga
+ngai ra nga ngai tam nga
 grin ai tsaw myit
 Oh Grin ai tsaw myit

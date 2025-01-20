@@ -2,8 +2,7 @@
 
 ## LZ Brang Seng
 
-Laiza Alen yang pa de ya bai
-du wa yang
+Laiza Alen yang pa de ya bai du wa yang
 moi na hte grai shai mat sai
 myitkyina manmaw lam hkrang sai
 pot pot modo she kashai
