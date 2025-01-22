@@ -22,3 +22,7 @@ hkrun hkraw la ai hkawng tung prat de
 nang ndu shang u ga
 teng naw nga yang na myit masa galai shai hkra
 tsawra myit hpe gwi gwi hkam sha ra
+
+prat masa hpe hkum jahpai
+myit sawn ai lam hkum ding lai
+na a prat hkawng tung nbyin u ga
