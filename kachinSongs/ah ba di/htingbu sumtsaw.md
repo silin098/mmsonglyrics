@@ -13,4 +13,4 @@ Chye nga yang myit pyaw hpa chye yu yang mu ai da
 shi a lam tsun dan na
 nau gaw ntsawm ai rai tim myit su ai
 se mung nse ai myit hpraw san seng ai
-ga ga nnga sai shie hte myit dik sai
+ga ga nnga sai shi hte myit dik sai
