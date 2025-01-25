@@ -11,7 +11,7 @@ hpa ntsun ai sha nang ngai hpe tawn kau da
 tsaw myit hpe ngai chye na ten nang hte tsan sai
 
 ngai shut ai lam yawn nye prat hte ngai hpyi nem ai  
-moi na zawn tsaw nga lu na a hkan jaw rit
+moi na zawn tsaw nga lu na a hkan naw jaw rit
 tsaw myit ngun hte sha ngai shut ai lawm yawm hpe ngai
 hput di let tsun na
 ngai hpyi nem ai yaw
