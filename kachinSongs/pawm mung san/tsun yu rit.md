@@ -42,3 +42,5 @@ tsun yu rit ngai hpe hku hkau tsawra ai zawn
 Ga ga langai hpe mung nang tsaw ra na kun
 garan jaw na nmai ai dai tsawra myit
 salum gadai madu lu na
+
+dawndan ya rit nang na tsawra myit ngai hpe jaw rit
