@@ -2,22 +2,22 @@
 
 ### Ah Dau
 
-La ma wa na tsaw myit lu yang gaw
-Kaja wa nu yan wa hpe tsun na
+La ma [C]wa na tsaw myit lu yang [Am]gaw
+Kaja [F]wa nu yan wa hpe tsun [C]na
 
-mayu kasha ngu ngai masat na
+mayu ka[Dm]sha ngu ngai masat [G]na
 
-la ma wa na mahtai lu yang gaw
+la ma [C]wa na mahtai lu yang [Am]gaw
 
-mayu dama jahkrum let sa hpyi na
-prat ting na nye a jan shatai na
+mayu da[F]ma jahkrum let sa hpyi [C]na
+prat ting [Dm]na nye a jan shatai [G]na
 
-shani shana ngai ala ai gaw
-nang a tsawra myit sha
+shani sha[F]na ngai ala ai [C]gaw
+[Dm]na a tsawra myit [G]sha
 
-tsawra ai dai mahtai
-ya ya ya jaw ai rai yang
-ya ya ya ngai hkrungran la na
+[Am]tsawra ai [Em]dai mahtai
+[F]ya ya ya jaw ai [G]rai yang
+[F]ya ya ya [G]ngai hkrungran la [C]na
 
 La ma wa na tsaw myit lu yang gaw
 mungkan hta ngai pyaw dik htum ngai rai sai
