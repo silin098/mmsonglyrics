@@ -21,7 +21,7 @@ shani sha[F]na ngai ala ai [C]gaw
 
 La ma [C]wa na tsaw myit lu yang [Am]gaw
 mungkan [F]hta  pyaw dik htum ngai [C]rai sai
-yawng yawng hta myit dik htum ngai rai sai
+yawng yawng [Dm]hta myit dik htum ngai [C]rai sai
 
 La ma wa na tsaw myit lu yang gaw
 mungkan hta ngai pyaw dik htum ngai rai sai
