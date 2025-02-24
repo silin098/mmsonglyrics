@@ -20,7 +20,7 @@ shani sha[F]na ngai ala ai [C]gaw
 [F]ya ya ya [G]ngai hkrungran la [C]na
 
 La ma [C]wa na tsaw myit lu yang [Am]gaw
-mungkan [F]hta  pyaw dik htum ngai rai sai
+mungkan [F]hta  pyaw dik htum ngai [C]rai sai
 yawng yawng hta myit dik htum ngai rai sai
 
 La ma wa na tsaw myit lu yang gaw
