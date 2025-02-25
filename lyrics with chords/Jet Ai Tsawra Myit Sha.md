@@ -2,9 +2,9 @@
 ### Sabaw Ah Tang
 
 
-Prat maka pandung nbung ai 
-Yaw shada lam grai shai ai
-Myit sawn ai nrum ai lapran Hpa majaw tsaw hkrup sai
+[G]Prat maka pandung nbung ai 
+[Em]Yaw shada lam grai shai ai
+[Am]Myit sawn ai nrum ai lapran [D]Hpa majaw tsaw hkrup sai
 Rau nga ni htep ai majaw kun.
 Grai hkuhkau myit kap ai rai kun
 Chye na yak ai sindun nga myit ni wa 
