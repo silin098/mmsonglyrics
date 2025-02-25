@@ -4,19 +4,25 @@
 
 [G]Prat maka pandung nbung ai 
 [Em]Yaw shada lam grai shai ai
-[Am]Myit sawn ai nrum ai lapran [D]Hpa majaw tsaw hkrup sai
-Rau nga ni htep ai majaw kun.
-Grai hkuhkau myit kap ai rai kun
-Chye na yak ai sindun nga myit ni wa 
+[Am]Myit sawn ai nrum ai lapran 
+[D]Hpa majaw tsaw hkrup sai
+Rau nga [Cm7]ni htep ai majaw kun.
+Grai hku[Bm7]hkau myit kap ai [E]rai kun
+Chye [Am]na yak ai [Cm]sindun nga myit ni [D]wa 
 
 
 
-Tsawra myit hta tara ai Shut ai, jaw ai, tsun yak ai
-Gyit hkang da ai myit sumri Hpyan yak sai...
-Tsawra myit gaw hpa rai ta? Sum ai, myat ai nnga ai . . .
-Rai tim hkrap na kun...? Pyaw na kun...?
-Kadai hta mara nnga... Kadai mung tsawra chye yang...
-Jet ai tsawra myit sha Ahkyak grau ai...
+Tsawra [G]myit hta tara [D]ai 
+Shut ai, [Em]jaw ai, tsun yak [Bm]ai
+
+Gyit hkang [C]da ai myit sum[G]ri 
+Hpyan yak [D]sai
+Tsawra [G]myit gaw hpa rai [D]ta? 
+Sum ai, [Em]myat ai nnga [Bm]ai
+Rai tim [C]hkrap na kun [G]Pyaw na kun...?
+[Am]Kadai hta mara [D]nnga... 
+[Am]Kadai mung tsawra chye [Em]yang...
+[C]Jet ai tsawra myit [D]sha Ahkyak grau [G]ai...
 
 
 Tsawra myit yawng gaw nbung ai Hpang gara nga ai ni hkrai
