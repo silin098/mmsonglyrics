@@ -1,6 +1,6 @@
 ## Kachyi Mi Sha Pyi
 
-### V - L Sai Z
+### V - L Sai Zi
 
 ### C - Zau Mung Lar Du
 
