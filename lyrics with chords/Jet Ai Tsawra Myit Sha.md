@@ -1,6 +1,7 @@
 ## Jet Ai Tsawra Myit sha
 ### Sabaw Ah Tang
 
+Intro [Fm7]......[Cm7].......[Fm7]....[G]
 
 [G]Prat maka pandung nbung ai 
 [Em]Yaw shada lam grai shai ai
