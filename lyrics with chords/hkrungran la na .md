@@ -2,6 +2,8 @@
 
 ### Ah Dau
 
+Intro [Fm7]......[Cm7].......[Fm7]....[G]
+
 La ma [C]wa na tsaw myit lu yang [Am]gaw
 Kaja [F]wa nu yan wa hpe tsun [C]na
 
