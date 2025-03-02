@@ -4,7 +4,7 @@
 
 ### Ka - Jum Awng
 
-Hkawng Hpe Mung Tsawra dik ai
+Hkawn Hpe Mung Tsawra dik ai
 Mung dan hpe tsawra chye ai
 shawng lam hta shakut shaja nga ai
 Hkawn a tsawra e

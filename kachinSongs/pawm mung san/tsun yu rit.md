@@ -1,6 +1,6 @@
 ## Tsun Yu Rit
 
-Tsawm Hta Ai Na Nsam hpe
+Tsawm Htap Ai Na Nsam hpe
 Kalang sha mu hkrup ai hte
 shaprai nmai kraw hta jun nga sai
 ganing di na tsawra myit a maka rai sam ai
