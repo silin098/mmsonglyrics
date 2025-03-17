@@ -6,8 +6,7 @@ Galoi mung nhka na
 Galoi mung nhten ai
 Tsaw myit hte nang hpe tsaw nga na
 
-Galoi mung lwi nga na
-Galoi mung nhkyet ai
+Galoi mung lwi nga na Galoi mung nhkyet ai
 
 Tsaw myit hte nang hpe tsaw na
 
