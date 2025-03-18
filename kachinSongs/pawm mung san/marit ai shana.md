@@ -20,7 +20,8 @@ nchyi nmu kraw dung hta hkam sha nga
 nang hpe dum ai shana nhtoi ni lai u ga
 dai hta grau na ndang hkam sha 
 
-dum ai shana lai u ga jan pru jan shang ten ni lai mat tim 
+dum ai shana lai u ga lai u ga 
+jan pru jan shang ten ni lai mat tim 
 nang hpe dum ai shana nhtoi ni lai u ga 
 marit ai shana ni lai u ga
 
