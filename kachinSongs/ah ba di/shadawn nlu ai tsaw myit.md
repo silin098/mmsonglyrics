@@ -16,7 +16,7 @@ nye tsawra myit gaw kadai hta nau nbyin ai baw
 dai nga yang dai sha kajawng kaja tawn da hkrum yang pi 
 ngai hkrai garen gari prat ting nga mat ai baw 
 
-nang sak hkrung ai ten hta yawng a matu nrai tim 
+ngai sak hkrung ai ten hta yawng a matu nrai tim 
 ngai sak nang langai a matu sha gaw byin hkra 
 nye tsawra myit gaw kadai hta nau nnga ai baw
 nang nga yang nang sha kaning kana tawn da hkrum yang pi 

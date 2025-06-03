@@ -2,12 +2,12 @@
 ### Hpaure Nu Lar
 
 Lani mi na ten hta nang hte hkrum zup lu na 
-nye tsaw myit ni dai ten hta nang hpe grau grau tsaw na 
+nye tsaw myit ni dai ten nang hpe grau grau tsaw na 
 ngai myit mada le nga nang hpe sha tsawra nga ai 
 tsan gang nga tim myit ni nang kaw sha 
 
 ndum shami ten hta nang hpe tsaw hkrup mat ai 
-dai tsaw myit hpe kraw hta nga prat tup zing da ai 
+dai tsaw myit hpe kraw hta ngai prat tup zing da ai 
 dai tsawra myit ni hpe nang manu shadan let 
 myit dum dat jang nang hte ani sha 
 
